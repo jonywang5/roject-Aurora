@@ -1,0 +1,1 @@
+Join us on a journey to explore the wonders of the universe. Project Aurora is a collaborative effort to study celestial phenomena and unravel the mysteries of outer space.
